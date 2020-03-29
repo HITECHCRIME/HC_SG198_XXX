@@ -19,7 +19,12 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 ## Lyrics
 
 ```
-
+Feign on, reign's on
+All the things you sought
+Turn to naught
+Better tell the truth
+about what you're not
+accepting for the world's 
 
 ```
 
