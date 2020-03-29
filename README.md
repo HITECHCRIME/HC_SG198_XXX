@@ -19,12 +19,14 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 ## Lyrics
 
 ```
+
+0:54
 Feign on, reign's on
 All the things you sought
-Turn to naught
-Better tell the truth
+Turn to naught for the better,
+be good, bellow tell the truth
 about what you're not
-accepting for the world's 
+accepting for the world's views
 
 ```
 
