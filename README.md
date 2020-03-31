@@ -21,9 +21,13 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 ```
 
 0:54
-Feign on, reign's on
-All the things you sought
-Turn to naught for the better,
+
+feign on, reign's on
+all the things you sought
+so play wise, seers eyes
+trapped retinas caught
+
+turn to naught for the better,
 be(ing) good, bellow tell the truth
 about what you're not
 accepting for the world's views
