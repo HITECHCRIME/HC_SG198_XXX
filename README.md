@@ -8,9 +8,9 @@
 
 Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free Dark  Trap Instrumental 2020
 
-**Title:** X  / **Featuring:** 
+**Title:** X  / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** Lezter / **Lyrics:** LYRICS
 
 **Narrative Design:**
 
