@@ -23,9 +23,12 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 0:54
 
 feign on, reign's on
-all the things you sought
-so play wise, seers eyes
+all the things you sought so 
+play wise, seers eyes
 trapped retinas caught
+blink phase still rage
+fast ways to comprehend
+
 
 turn to naught for the better,
 be(ing) good, bellow tell the truth
