@@ -28,6 +28,15 @@ be good, bellow tell the truth
 about what you're not
 accepting for the world's views
 
+it turns out all demons were outside
+when all time i spent was thinking it's me
+the sadness it opened old wounds were alight
+and sliced them again
+
+i spilled all my dreams into form of delight
+emotions from hatred caught fire
+all reason burned down
+
 ```
 
 ## Lyrics Testing Ground
