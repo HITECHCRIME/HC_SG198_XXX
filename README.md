@@ -10,7 +10,7 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 
 **Title:** X  / **Featuring:** MOTHNODE
 
-**Production:** Lezter / **Lyrics:** LYRICS
+**Production:** Lezter / **Lyrics:** MOTHNODE
 
 **Narrative Design:**
 
