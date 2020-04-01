@@ -29,7 +29,7 @@ seers have many eyes on truth
 and that's why (they - rhyme with feign and game) feeling trapped in retinas  
 (sharp circles) caught in (upward) whites
 traced to the backheads of the crowd 
-scent is on us, that's my game
+scent is on us, that's my (their) game
 
 if you understand blink twice 
 phase still rages way too fast 
