@@ -22,14 +22,14 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 
 0:54
 
-feign on, reign's on all the things you sought 
-so vicious still not playing wise, seers have many eyes (on you) (on truth)
+feign on, reign's up 
+all the things you sought 
+so vicious still not playing wise, 
+seers have many eyes on truth (on you)
 and that's why feeling trapped in retinas  
-(circles) caught in upward whites
+(sharp circles) caught in (upward) whites
+traced to the backheads of the crowd 
 scent is on us, that's my game
-
-
-on the backheads of the crowd 
 
 blink twice phase still rages way too
 fast so many ways to comprehend
