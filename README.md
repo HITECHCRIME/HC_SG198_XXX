@@ -26,7 +26,7 @@ feign on, reign's up
 all the things you sought 
 so vicious still not playing wise, 
 seers have many eyes on truth
-and that's why (they - rhyme with feign and game) feeling trapped in retinas  
+and that's why (?) feeling trapped in retinas   ///// (they - rhyme with feign and game)
 (sharp circles) caught in (upward) whites
 traced to the backheads of the crowd 
 scent is on us, that's my (their) game
