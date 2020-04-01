@@ -26,7 +26,7 @@ feign on, reign's up
 all the things you sought 
 so vicious still not playing wise, 
 seers have many eyes on truth
-and that's why feeling trapped in retinas  
+and that's why (they - rhyme with feign and game) feeling trapped in retinas  
 (sharp circles) caught in (upward) whites
 traced to the backheads of the crowd 
 scent is on us, that's my game
@@ -35,7 +35,7 @@ if you understand blink twice
 phase still rages way too fast 
 so many ways to comprehend
 let's all close our eyes
-and return to neverending black
+returning to neverending black
 
 turn to naught for the better,
 be(ing) good, bellow tell the truth
