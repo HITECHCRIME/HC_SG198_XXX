@@ -24,9 +24,11 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 
 feign on, reign's on all the things you sought 
 so vicious still not playing wise, seers have many eyes (on you) (on truth)
-and that's why i feel trapped in retinas  
-retinas caught in upward whites
-my game
+and that's why feeling trapped in retinas  
+(circles) caught in upward whites
+scent is on us, that's my game
+
+
 on the backheads of the crowd 
 
 blink twice phase still rages way too
