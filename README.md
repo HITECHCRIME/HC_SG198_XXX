@@ -22,13 +22,17 @@ Beat: LEZTER BEAT FREE (HARD) SCARLXRD x Night Lovell Type Beat - Critical  Free
 
 0:54
 
-feign on, reign's on
-all the things you sought so 
-play wise, seers eyes
-trapped retinas caught
-blink phase still rage
-fast ways to comprehend
+feign on, reign's on all the things you sought 
+so vicious still not playing wise, seers have many eyes (on you) (on truth)
+and that's why i feel trapped in retinas  
+retinas caught in upward whites
+my game
+on the backheads of the crowd 
 
+blink twice phase still rages way too
+fast so many ways to comprehend
+let's all close our eyes
+and return to neverending black
 
 turn to naught for the better,
 be(ing) good, bellow tell the truth
