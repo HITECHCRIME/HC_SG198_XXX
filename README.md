@@ -53,47 +53,6 @@ i spilled all my dreams into form of delight
 emotions from hatred caught fire
 all reason burned down
 
-tell me what that about 
-i really wanna know 
-
-now we really get to talk 
-what makes you (all) mad 
-
-quit throwin' (these) sighs, 
-feeling downed is
-what stops you cold 
-
-what makes you draw
-blank faces wrong
-doing nothing worth
-while coaching all
-not to drop and fall
-
-kneeling down to other's
-
-thoughts like damn 
-that (what) makes us low (go)
-
-little bit of facts
-all it took was bites
-
-
-
-riding (in) vicious tracks, feeling inside out
-just get it out 
-i'll do what's needs done
-i'm an honest man
-maybe just to honest
-to make you feel at home
-
-so shout to me and make it count
-get it out i'll do what gets you done
-i'm an honest man, maybe just too honest
-to make you feel at home
-
-
-
-making choices run, 
 
 
 
