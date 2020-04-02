@@ -73,7 +73,13 @@ kneeling down to other's
 
 thoughts like damn 
 that (what) makes us low (go)
-riding (in) tracks, feeling inside out
+
+little bit of facts
+all it took was bites
+
+
+
+riding (in) vicious tracks, feeling inside out
 just get it out 
 i'll do what's needs done
 i'm an honest man
