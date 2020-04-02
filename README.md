@@ -31,7 +31,7 @@ and that's why (?) feeling trapped in retinas   ///// (they - rhyme with feign a
 traced to the backheads of the crowd 
 scent is on us, that's my (their) game
 
-if you understand blink twice 
+blink twice if you understand  
 phase still rages way too fast 
 so many ways to comprehend
 let's all close our eyes
