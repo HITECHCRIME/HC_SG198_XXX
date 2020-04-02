@@ -32,7 +32,7 @@ traced to the backheads of the crowd
 scent is on us, that's my (their) game
 
 blink twice if you understand  
-phase still rages way too fast 
+phase still rages(ing) way too fast 
 so many ways to comprehend
 let's all close our eyes
 returning to neverending black
