@@ -57,22 +57,22 @@ tell me what that about
 i really wanna know 
 
 now we really get to talk 
-what makes you all mad 
+what makes you (all) mad 
 
-quit throwin' these sighs, 
-feeling down is
+quit throwin' (these) sighs, 
+feeling downed is
 what stops you cold 
 
 what makes you draw
 blank faces wrong
 doing nothing worth
 while coaching all
-not to drop
+not to drop and fall
 
 kneeling down to other's
 
 thoughts like damn 
-that's what makes us low
+that (what) makes us low (go)
 riding (in) tracks, feeling inside out
 just get it out 
 i'll do what's needs done
